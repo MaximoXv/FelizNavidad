@@ -1,5 +1,12 @@
 # FelizNavidad
 
-```
-La Navidad es una época mágica llena de alegría, amor y tradiciones. Es el momento perfecto para reunirse con la familia y amigos, compartir risas, intercambiar regalos y disfrutar de deliciosas comidas festivas. Las calles se iluminan con luces brillantes y decoraciones coloridas, creando un ambiente cálido y acogedor. Es una época para reflexionar sobre el año que ha pasado, agradecer por lo que tenemos y esperar con ilusión el nuevo año. En esencia, la Navidad es una celebración del espíritu de unión y la generosidad. 🎄
-```
+# 🎄✨ ¡Feliz Navidad, equipo de Digital House! ✨🎄
+
+En estas fechas tan especiales, queremos agradecer a cada uno de ustedes por su dedicación, esfuerzo y pasión a lo largo del año. Ha sido un 2024 lleno de desafíos, aprendizajes y logros compartidos. ¡Juntos hemos hecho de Digital House un lugar increíble para crecer y crear!
+
+Les deseamos unas fiestas llenas de paz, amor y alegría, rodeados de sus seres queridos. Que el 2025 llegue con nuevas oportunidades, proyectos emocionantes y muchos más éxitos para todos.
+
+¡Felices fiestas y nos vemos el próximo año con más energía y ganas de seguir transformando el futuro! 🎉
+
+Con cariño,  
+**El equipo de Digital House**
